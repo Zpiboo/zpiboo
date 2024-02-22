@@ -6,7 +6,7 @@ You might've noticed, when seeing my profile picture, that I like CSS (which, so
 
 But, since I am really cool, I have cool occupations too: Minecraft (aka the coolest game ever). Or, to be precise, Minecraft parkour. I was told about the coolest Minecraft parkour server, OmegaParkour (closed bc an admin got scammed :( ), by the coolest non-me person in the world: TSOLO88 (why did i talk about him? uhh... idk).
 
-oh and in my spare time i go to school (im 15)
+oh and in my spare time i go to school (im 16)
 
 ## Projects
 "Projects"? What's a "project"? Some kind of sandwich?
